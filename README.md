@@ -63,4 +63,4 @@ HR recommendations to reduce attrition below 12%.
 ## Contact
 **Koti Padmalaya**
 Email: padmalaya766@gmail.com
-LinkedIn: [Connect with me](www.linkedin.com/in/koti-padmalaya-b53b41364)
+LinkedIn: [Connect with me](https://www.linkedin.com/in/koti-padmalaya-b53b41364/)
